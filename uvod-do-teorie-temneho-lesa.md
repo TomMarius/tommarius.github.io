@@ -24,3 +24,5 @@ Kosmické měřítko výrazně mění pravidla hry. Na tisících světelných l
 Dále je pravděpodobné, že si i ostatní civilizace uvědomí teorii temného lesa, a proto do své technologické exploze a civilizační expanze investují výrazné prostředky. Proto to samé musí udělat i každá jiná civilizace.
 
 V důsledku je okamžité vyhlazení každé jiné civilizace jediná možnost, jakou civilizace má. Lokace mladé civilizace je její nejstřeženější tajemství - proto je vesmír temný les.
+
+Stejný koncept platí pro oddělené lidské civilizace, viz [Teorie temného lesa a lidský separatismus](https://marius.blog/teorie-temneho-lesa-a-lidsky-separatismus).
