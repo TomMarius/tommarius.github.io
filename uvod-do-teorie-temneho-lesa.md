@@ -13,16 +13,16 @@ Předpokládejme:
 - *Nejsou dostatečně rozvinutí* - Ani my nejsme dostatečně rozvinutí, možné
 - *Skrývají se* - Nemůžeme vyloučit
 
-Kosmické měřítko výrazně mění pravidla hry. Na tisících světelných let se pravidla redukují, zjednodušují.
+Kosmické měřítko výrazně mění pravidla hry. Na tisících světelných let se zjednodušují.
 
 Předpokládejme:
 
-- Většina inteligentních osob si přeje zůstat naživu.
-- V důsledku vzdálenosti neexistuje způsob, jak vědět, jestli nás mimozemšťané dokážou zničit, a zda to udělají.
+- Většina inteligentních osob si přeje zůstat naživu
+- V důsledku vzdálenosti neexistuje způsob, jak vědět, jestli nás mimozemšťané dokážou zničit, a jestli to udělají
 
-Dva klíčově koncepty:
+**Dva klíčově koncepty:**
 
-- **Technologická exploze** - Lidstvo právě jednu zažívá; na tak obrovských vzdálenostech je nutné předpokládat, že daná civilizace nepochybně zažije technologickou explozi.
-- **Civilizační expanze** - Na příkladu lidské ekonomiky a společnosti vidíme, že abychom nezkrachovali, musíme neustále a stále rychleji expandovat. Stejně na tom budou ostatní civilizace - aby nevymřeli, budou expandovat. Na obrovských kosmických škálách to znamená nevyhnutelný nárust nepřítele na nepředstavitelnou velikost.
+- **Technologická exploze** - Lidstvo právě jednu zažívá; na kosmických vzdálenostech je nutné předpokládat, že civilizace nepochybně zažije technologickou explozi.
+- **Civilizační expanze** - Na příkladu lidské ekonomiky a společnosti vidíme, že abychom nezkrachovali, musíme neustále a stále rychleji expandovat. Stejně na tom budou ostatní civilizace, budou expandovat. Na kosmických vzdálenostech to znamená  rychlý nárust nepřítele na nepředstavitelnou velikost.
 
-V důsledku je okamžité vyhlazení každé jiné civilizace jediná možnost, kterou jakákoliv civilizace má. Lokace mladé civilizace je její nejstřeženější tajemství - a proto je vesmír temný les.
+*V důsledku je okamžité vyhlazení každé jiné civilizace jediná možnost, kterou jakákoliv civilizace má. Lokace mladé civilizace je její nejstřeženější tajemství - proto je vesmír temný les.*
