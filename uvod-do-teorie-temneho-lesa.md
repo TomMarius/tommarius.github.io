@@ -7,6 +7,7 @@ Předpokládejme:
 
 Kde jsou mimozemšťani, proč je nevidíme?
 
+- Život není zas tak pravděpodobný
 - Ještě neexistují
 - Už neexistují
 - Nejsou dostatečně rozvinutí
