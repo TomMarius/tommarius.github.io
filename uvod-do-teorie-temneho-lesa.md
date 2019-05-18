@@ -13,16 +13,11 @@ Předpokládejme:
 - *Nejsou dostatečně rozvinutí* - Ani my nejsme dostatečně rozvinutí, možné
 - *Skrývají se* - Nemůžeme vyloučit
 
-Kosmické měřítko výrazně mění pravidla hry. Na tisících světelných let se zjednodušují.
+Kosmické měřítko výrazně mění pravidla hry. Na tisících světelných let se zjednodušují. Předpokládejme, žětšina inteligentních osob si přeje zůstat naživu
 
-Předpokládejme:
-
-- Většina inteligentních osob si přeje zůstat naživu
-- V důsledku vzdálenosti neexistuje způsob, jak vědět, jestli nás mimozemšťané dokážou zničit, a jestli to udělají
-
-**Dva klíčově koncepty:**
-
-- **Technologická exploze** - Lidstvo právě jednu zažívá; na kosmickém měřítku je nutné předpokládat, že civilizace nepochybně zažije technologickou explozi
+**Klíčově koncepty:**
+- **Řetězec podezření** - V důsledku vzdálenosti neexistuje způsob, jak vědět, jestli nás mimozemšťané dokážou zničit, a jestli to udělají, a proto je musíme podezřívat, a proto nás musí podezřívat.
+ **Technologická exploze** - Lidstvo právě jednu zažívá; na kosmickém měřítku je nutné předpokládat, že civilizace nepochybně zažije technologickou explozi
 - **Civilizační expanze** - Na příkladu lidské ekonomiky a společnosti vidíme, že abychom nezkrachovali, musíme neustále a stále rychleji expandovat. Stejně na tom budou ostatní civilizace, budou expandovat. Na kosmickém měřítku to znamená rychlý nárust nepřítele na nepředstavitelnou velikost.
 
 Dále je pravděpodobné, že si i ostatní civilizace uvědomí teorii temného lesa, a proto do své technologické exploze a civilizační expanze investují výrazné prostředky. Proto to samé musí udělat i každá jiná civilizace.
