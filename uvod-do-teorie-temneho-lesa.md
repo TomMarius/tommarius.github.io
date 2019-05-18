@@ -27,4 +27,4 @@ Předpokládejme:
 
 Dále je pravděpodobné, že si i ostatní civilizace uvědomí teorii temného lesa, a proto do své technologické exploze a civilizační expanze investují výrazné prostředky. Proto to samé musí udělat i každá jiná civilizace.
 
-V důsledku je okamžité vyhlazení každé jiné civilizace jediná možnost, kterou jakákoliv civilizace má. Lokace mladé civilizace je její nejstřeženější tajemství - proto je vesmír temný les.
+V důsledku je okamžité vyhlazení každé jiné civilizace jediná možnost, jakou civilizace má. Lokace mladé civilizace je její nejstřeženější tajemství - proto je vesmír temný les.
