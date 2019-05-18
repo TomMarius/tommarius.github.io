@@ -13,7 +13,7 @@ Předpokládejme:
 - *Nejsou dostatečně rozvinutí* - Ani my nejsme dostatečně rozvinutí, možné
 - *Skrývají se* - Nemůžeme vyloučit
 
-Kosmické měřítko výrazně mění pravidla hry. Na tisících světelných let se zjednodušují. Předpokládejme, žětšina inteligentních osob si přeje zůstat naživu
+Kosmické měřítko výrazně mění pravidla hry. Na tisících světelných let se zjednodušují. Předpokládejme, že většina inteligentních osob si přeje zůstat naživu
 
 **Klíčově koncepty:**
 
