@@ -13,9 +13,16 @@ Předpokládejme:
 - *Nejsou dostatečně rozvinutí* - Ani my nejsme dostatečně rozvinutí, možné
 - *Skrývají se* - Nemůžeme vyloučit
 
-Kosmické měřítko výrazně mění pravidla hry. Na tisících světelných let se pravidla redukují, zjednodušují - na dvě:
+Kosmické měřítko výrazně mění pravidla hry. Na tisících světelných let se pravidla redukují, zjednodušují.
 
-- **Technologická exploze** - Lidstvo právě jednu zažívá; na tak obrovských vzdálenostech je nutné předpokládat, že daná civilizace nepochybně zažije technologickou explozi, pokud nepřestane existovat
-- **Civilizační expanze** - Na příkladu lidské ekonomiky a civilizace vidíme, že abychom všichni nezkrachovali, musíme neustále geometrickou řadou expandovat. Stejně na tom budou ostatní civilizace - aby nevymřeli, musí expandovat. Na obrovských kosmických škálách to znamená nevyhnutelný nárust nepřítele na obrovskou velikost.
+Předpokládejme:
 
-V důsledku je okamžité vyhlazení každé jiné civilizace jediná možnost, kterou každá civilizace má. Tím pádem je lokace mladé civilizace její nejstřeženější tajemství - a proto je vesmír temný les.
+- Většina inteligentních osob si přeje zůstat naživu.
+- V důsledku vzdálenosti neexistuje způsob, jak vědět, jestli nás mimozemšťané dokážou zničit, a zda to udělají.
+
+Dva klíčově koncepty:
+
+- **Technologická exploze** - Lidstvo právě jednu zažívá; na tak obrovských vzdálenostech je nutné předpokládat, že daná civilizace nepochybně zažije technologickou explozi.
+- **Civilizační expanze** - Na příkladu lidské ekonomiky a společnosti vidíme, že abychom nezkrachovali, musíme neustále a stále rychleji expandovat. Stejně na tom budou ostatní civilizace - aby nevymřeli, budou expandovat. Na obrovských kosmických škálách to znamená nevyhnutelný nárust nepřítele na nepředstavitelnou velikost.
+
+V důsledku je okamžité vyhlazení každé jiné civilizace jediná možnost, kterou jakákoliv civilizace má. Lokace mladé civilizace je její nejstřeženější tajemství - a proto je vesmír temný les.
