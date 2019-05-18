@@ -6,4 +6,4 @@ Pokud by se z lidské společnosti odštěpila skupina lidí dostatečně velká
 
 *Lidský separatismus*, únik z lidské společnosti a civilizace s úmyslem založit jinou nezávislou civilizaci, musí být celospolečensky považovaný za odpudivý, a trestán. Nekontrolovatelné kolonizační a generační vesmírné lodě musí být zastaveny a zneškodněny nebo zničeny.
 
-Obdobou *základní směrnice* ze světa Star Treku se zcela jistě stane absolutní a nejpřísnější zákaz zanechání biologického materiálu kdekoliv ve vesmíru.
+Obdobou *základní směrnice* ze světa Star Treku se zcela jistě stane absolutní a nejpřísnější zákaz zanechání libovolného biologického materiálu kdekoliv ve vesmíru.
