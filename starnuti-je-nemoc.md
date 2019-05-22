@@ -6,7 +6,7 @@ Lobbisté v USA i EU prokazatelně bojují proti každému pokusu řešit někte
 
 Konec stárnutí a přirozené smrti je složitý sociální problém, se kterým se ale dříve či později musíme vypořádat. Příliš řešení nám ani nezbývá, svazují nás hodnoty humanismu.
 
-Penzijní systém přestane existovat - ve světě, kde lidé důchodového věku jsou na tom ve všech ohledech fyzicky lépe, než naprostá většina dnešních lidí, nejsou nemohoucí a neumírají, je neudržitelný, a nedává smysl. Problém je, že velká část současného globálního finančního systému je různými způsoby navázána na penzijní systémy, což je důvod k obavám, a tuto situaci je třeba okamžitě řešit a začít aktivně měnit.
+Penzijní systém přestane existovat - ve světě, kde lidé důchodového věku jsou na tom ve všech ohledech fyzicky lépe, než naprostá většina dnešní populace, nejsou nemohoucí a neumírají, je neudržitelný, a nedává smysl. Problém je, že velká část současného globálního finančního systému je různými způsoby navázána na penzijní systémy, což je důvod k obavám, a tuto situaci je třeba okamžitě řešit a začít aktivně měnit.
 
 Lidé získají možnost plánovat investice na dlouhá desetiletí až staletí dopředu, což má sice potenciál obecně snížit průměrný výnos, tento efekt by ale s civilizační expanzí měl být zanedbatelný. Nezastavitelný neustálý příliv lidí na trh vytvoří potřebu nezastavitelného přísunu zdrojů, *robotická těžba asteroidů*, potřebná infrastruktura a návazný průmysl by tedy měly být jedny z hlavních priorit lidské společnosti.
 
