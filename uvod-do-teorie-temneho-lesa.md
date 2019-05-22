@@ -15,9 +15,9 @@ Předpokládejme:
 
 Kosmické měřítko výrazně mění pravidla hry. Na tisících světelných let se zjednodušují. Předpokládejme, že většina inteligentních osob si přeje zůstat naživu
 
-**Klíčově koncepty:**
+**Klíčové koncepty:**
 
-- **Řetězec podezření** - V důsledku vzdálenosti neexistuje způsob, jak vědět, jestli nás mimozemšťané dokážou zničit, a jestli to udělají, a proto je musíme podezřívat, a proto nás musí podezřívat.
+- **Řetězec podezření** - Vězňovo dilema. V důsledku vzdálenosti neexistuje způsob, jak vědět, jestli nás mimozemšťané dokážou zničit, a jestli to udělají, a proto je musíme podezřívat, a proto nás musí podezřívat.
 - **Technologická exploze** - Lidstvo právě jednu zažívá; na kosmickém měřítku je nutné předpokládat, že civilizace nepochybně zažije technologickou explozi. Tato technologická exploze vyžaduje exponenciálně více a více zdrojů.
 
 Dále je pravděpodobné, že si i ostatní civilizace uvědomí teorii temného lesa, a proto do své technologické exploze a civilizační expanze investují výrazné prostředky. Proto to samé musí udělat i každá jiná civilizace.
