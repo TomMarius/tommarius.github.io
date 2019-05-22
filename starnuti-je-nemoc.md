@@ -1,9 +1,11 @@
 # Stárnutí je nemoc
 
-Podle výzkumu skvělého a renomovaného vědce Aubrey de Greye není stárnutí a smrt stářím nevyhnutelné, ale nemoc, kterou lze pokročilou technologií léčit. Přesto se svět brání zařazení 7 nemocí ze stárnutí mezi odbornou veřejností uznané nemoci. V důsledku je výzkum pomalý a vývoj řešení prakticky neexistující.
+Podle výzkumu skvělého a renomovaného vědce Aubrey de Greye není stárnutí a smrt stářím nevyhnutelné, ale nemoc, kterou lze pokročilou technologií léčit. Přesto se svět brání zařazení 7 nemocí ze stárnutí mezi odbornou veřejností uznané nemoci. V důsledku je výzkum pomalý a vývoj řešení prakticky neexistující. I přesto se podařilo sehnat přes 15 milionu dolarů na výzkum Aubrey de Greye a SENS foundation, kterou založil. Jeho přístup má potenciál; předpovídá, že lidé by mohli přestat stárnout již v roce 2050, a co víc, během krátké doby by staří lidé znovu omládli.
 
-Konec stárnutí a přirozené smrti je složitý sociální problém, se kterým se ale dříve či později musíme vypořádat. Moc řešení nám ani nezbývá, svazují nás hodnoty humanismu.
+Konec stárnutí a přirozené smrti je složitý sociální problém, se kterým se ale dříve či později musíme vypořádat. Příliš řešení nám ani nezbývá, svazují nás hodnoty humanismu.
 
-Penzijní systém přestane existovat - ve světě, kde lidé důchodového věku jsou na tom ve všech ohledech fyzicky lépe, než naprostá většina dnešních lidí, je neudržitelný, a nedává smysl. Lidé naopak získají možnost plánovat investice na dlouhé desetiletí až staletí dopředu, což má potenciál obecně snížit průměrný výnos.
+Penzijní systém přestane existovat - ve světě, kde lidé důchodového věku jsou na tom ve všech ohledech fyzicky lépe, než naprostá většina dnešních lidí, je neudržitelný, a nedává smysl. Problém je, že velká část současného globálního finančního systému je různými způsoby navázána na penzijní systémy, což je důvod k obavám, a z této situace se musíme co nejdříve dostat.
 
-Nezastavitelný neustálý příliv lidí na trh vytvoří potřebu nezastavitelného přísunu zdrojů, *robotická těžba asteroidů* by tedy měla být pro lidskou společnost prioritou. Země, zároveň jakožto unikátní přírodní památka, nám brzy přestane stačit, proto musíme brzy začít stavět vesmírné stanice ve formě rotujících cylindrů. 
+Lidé naopak získají možnost plánovat investice na dlouhé desetiletí až staletí dopředu, což má potenciál obecně snížit průměrný výnos. Nezastavitelný neustálý příliv lidí na trh vytvoří potřebu nezastavitelného přísunu zdrojů, *robotická těžba asteroidů*, potřebná infrastruktura a návazný průmysl by tedy měly tvořit priority lidské společnosti.
+
+Země, na kterou je zároveň nutné pohlížet jakožto na unikátní přírodní památku, nám nepochybně přestane stačit, proto musíme stavět vesmírné stanice ve formě rotujících cylindrů, které jsou optimální forma vesmírné stanice pro trvalé osídlení lidmi. 
