@@ -1,6 +1,6 @@
 # Stárnutí je nemoc
 
-Podle výzkumu skvělého a renomovaného vědce Aubrey de Greye není stárnutí a smrt stářím nevyhnutelné, ale nemoc, kterou lze pokročilou technologií léčit. Přesto se svět brání zařazení 7 nemocí ze stárnutí mezi odbornou veřejností uznané nemoci. V důsledku je výzkum pomalý a vývoj řešení prakticky neexistující. I přesto se podařilo sehnat přes 15 milionu dolarů na výzkum Aubrey de Greye a SENS foundation, kterou založil. Jeho přístup má potenciál; předpovídá, že lidé by mohli přestat stárnout již v roce 2050, a co víc, během krátké doby by staří lidé znovu omládli.
+Podle výzkumu skvělého a renomovaného vědce Aubrey de Greye není stárnutí nevyhnutelná skutečnost života, ale 7 kategorií nemocí, které lze pokročilou technologií léčit. Přesto se svět brání zařazení těchto 7 nemocí ze stárnutí mezi odbornou veřejností uznané nemoci. V důsledku je výzkum pomalý a vývoj řešení prakticky neexistující. I přesto se podařilo sehnat přes 15 milionu dolarů na výzkum Aubrey de Greye a SENS foundation, kterou založil. Jeho přístup má potenciál; předpovídá, že lidé by mohli přestat stárnout již v roce 2050, a co víc, během krátké doby by staří lidé znovu omládli.
 
 Konec stárnutí a přirozené smrti je složitý sociální problém, se kterým se ale dříve či později musíme vypořádat. Příliš řešení nám ani nezbývá, svazují nás hodnoty humanismu.
 
