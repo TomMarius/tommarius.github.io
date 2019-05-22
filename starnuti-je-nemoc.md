@@ -1,6 +1,6 @@
 # Stárnutí je nemoc
 
-Podle výzkumu skvělého a renomovaného vědce Aubrey de Greye není stárnutí nevyhnutelná skutečnost života, ale 7 kategorií nemocí, které lze pokročilou technologií léčit. Přesto se svět brání zařazení těchto 7 nemocí ze stárnutí mezi odbornou veřejností uznané nemoci. V důsledku je výzkum pomalý a vývoj řešení prakticky neexistující. I přesto se podařilo sehnat přes 15 milionu dolarů na výzkum Aubrey de Greye a SENS foundation, kterou založil. Jeho přístup má potenciál; předpovídá, že lidé by mohli přestat stárnout již v roce 2050, a co víc, během krátké doby by staří lidé znovu omládli.
+Podle výzkumu renomovaného vědce Aubrey de Greye (Cambridge) není stárnutí nevyhnutelná skutečnost života, ale 7 kategorií nemocí, které lze pokročilou technologií léčit. Přesto se svět brání zařazení těchto 7 nemocí ze stárnutí mezi odbornou veřejností uznané nemoci. V důsledku je výzkum pomalý a vývoj řešení prakticky neexistující. I přesto se podařilo sehnat přes 15 milionu dolarů na výzkum Aubrey de Greye a SENS foundation, kterou založil. Jeho přístup má potenciál; předpovídá, že lidé by mohli přestat stárnout již v roce 2050, a co víc, během krátké doby by staří lidé znovu omládli.
 
 Lobbisté v USA i EU prokazatelně bojují proti každému pokusu řešit některé témata medicíny, pravděpodobně kvůli hrozbě krachu jejich zaměstnavatelů. Tito lobbisté a jejich zaměstnavatelé své zdroje odvozují především ze zdravotních a úrazových pojištění, farmaceutického průmyslu, biomedicínských technologií a poskytování zdravotních a lékařských služeb.
 
